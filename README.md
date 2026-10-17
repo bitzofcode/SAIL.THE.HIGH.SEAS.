@@ -26,7 +26,7 @@
 <img width="1024" height="114" alt="1000023259" src="https://github.com/user-attachments/assets/35a54347-b0e3-42d3-bfeb-c0243d2e1e2a" />
 
 
-Retro (captain), Scor, Ribbony, Skittles, Zii (?), Keres, Sage, Ren, Antonio, Leliv, Molly, Zach, Pearl, Oliver, Juan, Alexandra, Danni, Gr3y, Sonne, Rebecca, Fizzy (?), Bread (?), more.  ﹒<3
+Retro (captain), Scor, Lampert, Slingshot, Nerve (?), Sailor (?), Ribbony, Skittles, Zii (?), Keres, Sage, Ren, Antonio, Leliv, Molly, Zach, Pearl, Oliver, Juan, Alexandra, Danni, Gr3y, Sonne, Rebecca, Fizzy (?), Bread (?), more.  ﹒<3
 <img width="2048" height="109" alt="1000019487" src="https://github.com/user-attachments/assets/d4596f98-c07a-4fb3-8063-39b72b099548" />
 <img width="1024" height="183" alt="1000023258" src="https://github.com/user-attachments/assets/4ac390e7-8672-4253-b073-9dcba5cda6fb" />
 
