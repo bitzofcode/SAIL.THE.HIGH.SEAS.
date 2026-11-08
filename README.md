@@ -1,4 +1,5 @@
 “❄️﹒fishies go glub glub ﹒〣 
+(I DON'T SUPPORT THE SEILDIRECTORY CONTROVERSY.)
 <img width="1007" height="108" alt="1000023272" src="https://github.com/user-attachments/assets/ca274697-3742-4cb8-ae36-4dc37804842c" />
 <img width="2048" height="109" alt="1000019487" src="https://github.com/user-attachments/assets/d4596f98-c07a-4fb3-8063-39b72b099548" />
 
